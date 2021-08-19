@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TurtleCoding
+- 👀 I’m interested in ... sleep
+- 🌱 I’m currently learning ... fuck all
+- 💞️ I’m looking to collaborate on ... sexy time
+- 📫 How to reach me ... just don't
